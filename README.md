@@ -1,6 +1,6 @@
 [LinkedIn](https://www.linkedin.com/in/ckyba/) 🍪 [Twitter/X](https://www.x.com/kii1bs)
 
-Reach out: carrotscarson@gmail.com
+Feel free to reach out about projects or anything 🪐
 
 ---
 <img align="left" width="40px" padding-right="10px" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/html5/html5-original.svg" />
